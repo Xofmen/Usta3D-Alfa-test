@@ -1,1 +1,0 @@
-# Usta3D-Alfa-test
